@@ -1,0 +1,1 @@
+# StudyMate-repo-skeleton-va-umumiy-DB-sxema-hujjati
